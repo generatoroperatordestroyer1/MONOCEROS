@@ -1,2 +1,2 @@
 # Monoceros-
-Brand New Cryptocurrency For Education 
+Brand New Cryptocurrency For Processing Currency.
